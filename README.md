@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning cntt
 - I'm want to learn SQL 
 - 💞️ I’m looking for leanring job SQL basic
-- 📫 reach me my phone 0396664268
+- 📫 reach me email duongmanhdung781@gmai.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
